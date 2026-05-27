@@ -1,5 +1,4 @@
-
-[![Alt Text](https://en.pronouns.page/@pilotredsunz)
+[Pronouns Page](https://en.pronouns.page/@pilotredsunz)
 
 
 <p align="center">
