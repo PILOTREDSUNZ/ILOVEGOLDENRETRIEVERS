@@ -19,11 +19,8 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <div align="center">
 
 <details>
-<summary>
   
-<font color="#FF5C00"><strong> Also I really love </strong></font>
-
-<summary>
+<summary><strong> Also I really love </strong></font>
 
 <br>
 
