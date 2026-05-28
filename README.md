@@ -1,3 +1,5 @@
+$${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
+
 <p align="center">
   <img width="140" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=HELLOOOO!!&color=e6b400">
 <div align="center">
@@ -14,6 +16,6 @@
 
 </div>
 
-$${{\color{#FF5C00}{\textsf{Psst, hey. See those Supersnakes being sent on other peoples strawpage? Yeah, thats me :)\}}}}$$
+$${{\color{#FF5C00}{\textsf{Anyway, basic info about me;I love Superman, TF2, and yellow very much :p\}}}}$$
 
-$${{\color{#1e90fF}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
+$${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
