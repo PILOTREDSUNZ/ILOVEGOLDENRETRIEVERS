@@ -32,4 +32,23 @@ $${{\color{#FF5C00}{\textsf{The colour yellow\}}}}$$
 
 </div>
 
+<div align="center">
+
+<details>
+<summary><strong>Please DNI</strong></summary>
+
+<br>
+
+$${{\color{#FF5C00}{\textsf{Pedophiles\}}}}$$
+$${{\color{#FF5C00}{\textsf{Zoophiles\}}}}$$
+$${{\color{#FF5C00}{\textsf{Insensitive people}}}}$$
+$${{\color{#FF5C00}{\textsf{Religious Bigotry people (those who harass and attack people for being in specific religion)\}}}}$$
+$${{\color{#FF5C00}{\textsf{If you harass others just because they are different and haven't done anything towards you\}}}}$$
+$${{\color{#FF5C00}{\textsf{Racists/Xenophobics\}}}}$$
+$${{\color{#FF5C00}{\textsf{Ableists\}}}}$$
+
+</details>
+
+</div>
+
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
