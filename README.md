@@ -16,6 +16,6 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 </div>
 
-$${{\color{#FF5C00}{\textsf{Anyway, basic info about me; I love Superman, golden retrievers, TF2, and yellow very much :p\}}}}$$
+$${{\color{#FF5C00}{\textsf{Also I love Superman, golden retrievers, TF2, and yellow very much :p\}}}}$$
 
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
