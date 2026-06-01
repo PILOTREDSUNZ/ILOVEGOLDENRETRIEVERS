@@ -1,6 +1,9 @@
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 
 <p align="center">
+  
+  $${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. You'll mostly find me at the DC area sitting by a tree and a rock in a Billy Batson skin. Most of my skins are usually WIPs so they usually look simple and plain most times\}}}}$$
+
   <img width="140" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=HELLOOOO!!&color=e6b400">
 <div align="center">
   
@@ -15,9 +18,6 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=This+whole+thing+is+still+a+huge+WIP;More+things+will+still+be+added+here." />
 
 </div>
-
-${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. You'll mostly find me at the DC area sitting by a tree and a rock in a Billy Batson skin. Most of my skins are usually WIPs so they usually look simple and plain most times\}}}}$
-
 
 <div align="center">
 
