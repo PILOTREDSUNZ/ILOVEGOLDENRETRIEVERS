@@ -1,7 +1,4 @@
 $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
-$${{\color{#FF5C00}{\textsf{C+H always freely to all even if its not in my name, unless it has DNI. W2I is preferred. You'll mostly find me at the DC area sitting by a tree and a rock in a 
-Billy Batson skin. Most of my skins are usually WIPs so they usually look simple and plain most times\}}}}$$
-
 
 <p align="center">
   <img width="140" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=HELLOOOO!!&color=e6b400">
