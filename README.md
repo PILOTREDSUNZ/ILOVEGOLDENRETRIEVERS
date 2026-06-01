@@ -19,6 +19,22 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <div align="center">
 
 <details>
+<summary><strong> A bit of info </strong></summary>
+
+<br>
+
+$${{\color{#FF5C00}{\textsf{You'll mostly find me at the DC and TF2 area ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{I'm mostly using a Billy Batson skin ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Most of my skins are WIP and I mostly prefer using plain and simple skins ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{C+H is always free for everyone! I mostly prefer talking in whispers too ϟ\}}}}$$
+
+</details>
+
+</div>
+
+<div align="center">
+
+<details>
 <summary><strong> Also I really love </strong></summary>
 
 <br>
