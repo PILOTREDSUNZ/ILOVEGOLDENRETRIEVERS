@@ -26,7 +26,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
   </tr>                                           
 </table>
 
-</div>
+<br><br>
 
 <div align="center">
 
