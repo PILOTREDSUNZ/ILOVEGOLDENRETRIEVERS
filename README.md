@@ -64,6 +64,7 @@ $${{\color{#FF5C00}{\textsf{Antis who harass and send disgusting threats ϟ\}}}}
 $${{\color{#FF5C00}{\textsf{Racists/Xenophobics ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ableists ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Homophobes ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Radqueers ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{If you ship Billy with any of the Shazam/Marvel Family members, especially with Freddy ϟ\}}}}$$
 
 </details>
