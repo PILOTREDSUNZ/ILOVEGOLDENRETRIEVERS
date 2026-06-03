@@ -27,6 +27,7 @@ $${{\color{#FF5C00}{\textsf{You'll mostly find me at the DC and TF2 area ϟ\}}}}
 $${{\color{#FF5C00}{\textsf{I'm mostly using a Billy Batson skin ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Most of my skins are WIP and I mostly prefer using plain and simple skins ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{C+H is always free for everyone! I mostly prefer talking in whispers too ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Expect me to actually come up to you and sit right next to you if you have C+H freely/enc/pls on your name whenever im sitting alone ϟ\}}}}$$
 
 </details>
 
