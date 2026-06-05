@@ -31,7 +31,7 @@ $${{\color{#FF5C00}{\textsf{I'm mostly using a Billy Batson skin ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Most of my skins are very simple since I mostly prefer using plain and simple skins ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{C+H is always free for everyone unless stated otherwise! I mostly prefer talking in whispers too ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Expect me to actually come up to you and sit right next to you if you have C+H freely/enc/pls on your name whenever im sitting alone ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{I usually don't interact much or interact first at all with other people in my fandom. I mostly interact and talk more with the people in the TF2\}}}}$$
+$${{\color{#FF5C00}{\textsf{I usually don't interact much or interact first at all with other people in my fandom. Im mostly interactive and social towards the people in the TF2\}}}}$$
 $${{\color{#FF5C00}{\textsf{fandom/area ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{TF2/Valve fans pls int and C+H please dont be scared of me cuz of my skins im nice I promise I love y'all TF2 peeps PLEASE ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Ships are usually a IWEC since im not really the type to ship but im fine with it. When im sitting with someone that doesnt mean I\}}}}$$
