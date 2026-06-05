@@ -50,7 +50,7 @@ $${{\color{#FF5C00}{\textsf{Superman. Yes im a big fan of him hes my comf char i
 $${{\color{#FF5C00}{\textsf{Team Fortress 2 ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{BLU Team and the BLU mercenaries ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Golden Retrievers ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{The colour yellow ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{The colour yellow, orange and red ϟ\}}}}$$
 
 </details>
 
