@@ -13,8 +13,10 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
 <div align="center">
 
 <img src="https://readme-typing-svg.herokuapp.com?font=Tekton+Code&size=28&pause=1000&color=FFBF00&center=true&vCenter=true&width=600&lines=This+whole+thing+is+still+a+huge+WIP;I'll+add+my+strawpage+soon+plehh" />
-also yo check out my drawings in my other respiratory aha plehhhh (˶˃ ᵕ ˂˶) .ᐟ.ᐟ
+
 </div>
+
+$${{\color{#FFBDA1}{\textsf{also yo check out my drawings in my other respiratory aha plehhhh (˶˃ ᵕ ˂˶) .ᐟ.ᐟϟ\}}}}$$
 
 <div align="center">
 
