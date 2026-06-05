@@ -46,7 +46,7 @@ $${{\color{#FF5C00}{\textsf{I can often go around trolling and goofing around wi
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Superman ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz hes literally my bestfriend trust me ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Team Fortress 2 ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{BLU Team and the BLU mercenaries ϟ\}}}}$$
 $${{\color{#FF5C00}{\textsf{Golden Retrievers ϟ\}}}}$$
