@@ -60,6 +60,8 @@ $${{\color{#FF5C00}{\textsf{ϟ Interacting and socializing with TF2 fans and pon
 
 $${{\color{#FF5C00}{\textsf{ϟ Making new friends and cuddling in pony town!!! ϟ\}}}}$$
 
+$${{\color{#FF5C00}{\textsf{ϟ My friends!! I love all my cute and adorable friends awwhh ily all sm /plat<3 ϟ\}}}}$$
+
 $${{\color{#FF5C00}{\textsf{ϟ BLU Team and the BLU mercenaries. Blu team is simply better ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ Golden Retrievers cuz they r so cute and cuzim literally one of them hashtagpupgender hashtaggoldrevian yes hai im a doggie ϟ\}}}}$$
