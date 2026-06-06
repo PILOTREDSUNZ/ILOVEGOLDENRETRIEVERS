@@ -50,7 +50,7 @@ $${{\color{#FF5C00}{\textsf{ϟ C+H is always encouraged even if its not in my na
 
 $${{\color{#FF5C00}{\textsf{ϟ Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz hes literally my bestfriend in real life trust me ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me through tough timesϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me through tough times ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ BLU Team and the BLU mercenaries. Blu team is simply better ϟ\}}}}$$
 
