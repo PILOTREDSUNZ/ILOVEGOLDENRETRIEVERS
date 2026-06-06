@@ -39,6 +39,8 @@ $${{\color{#FF5C00}{\textsf{ϟ C+H is always encouraged even if its not in my na
 
 $${{\color{#FF5C00}{\textsf{ϟ Expect me to actually cuddle with u if you have C+H in ur name whenever im alone ϟ\}}}}$$
 
+$${{\color{#FF5C00}{\textsf{ϟ Dont mind my skins. I prefer keeping them plain and simple but yes, I do have more detailed skins I just dont use a lot ϟ\}}}}$$
+
 </details>
 
 </div>
