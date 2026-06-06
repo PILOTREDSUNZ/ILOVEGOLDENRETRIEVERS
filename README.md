@@ -54,7 +54,11 @@ $${{\color{#FF5C00}{\textsf{ϟ Dont mind my skins. I prefer keeping them plain a
 
 $${{\color{#FF5C00}{\textsf{ϟ Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz superman is literally my bestfriend in real life trust me ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me through tough times ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helps me become vbery happy when im sad ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Interacting and socializing with TF2 fans and ponies in the TF2 area ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Making new friends and cuddling in pony town!!! ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ BLU Team and the BLU mercenaries. Blu team is simply better ϟ\}}}}$$
 
