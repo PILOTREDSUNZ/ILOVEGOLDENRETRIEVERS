@@ -50,7 +50,7 @@ $${{\color{#FF5C00}{\textsf{ϟ Expect me to actually cuddle with u if you have C
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{ϟ Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz hes literally my bestfriend in real life trust me ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz superman is literally my bestfriend in real life trust me we hang out with eachothr everyday ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me through tough times ϟ\}}}}$$
 
