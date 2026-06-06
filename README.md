@@ -60,6 +60,8 @@ $${{\color{#FF5C00}{\textsf{ϟ Golden Retrievers cuz they r so cute and cuzim li
 
 $${{\color{#FF5C00}{\textsf{ϟ The colour yellow, orange and red. these colours are so me heh ϟ\}}}}$$
 
+$${{\color{#FF5C00}{\textsf{ϟ Doing DIYs and thrifting. I like making stuffs for myself and buying cheap awesome saucer clothes heh ϟ\}}}}$$
+
 </details>
 
 </div>
@@ -71,7 +73,7 @@ $${{\color{#FF5C00}{\textsf{ϟ The colour yellow, orange and red. these colours 
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{ϟ Basic DNI criteria ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Basic DNI criterias ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ If you ship Billy with Freddy or any of the Marvel/Shazam family ϟ\}}}}$$
 
