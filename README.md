@@ -28,7 +28,9 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 $${{\color{#FF5C00}{\textsf{ϟ Please read all of the stuffs I linked in here since I might be in ur DNI (usually those with under 15-16 and up DNIs) ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ I really love and enjoy talking about stuffs like about my day, plans, interests and more. I can be extremely social though I mostly socialize more \}}}}$$
-$${{\color{#FF5C00}{\textsf{with the people in the TF2 area ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{with the people in the TF2 area and usually dont interact much with other people in my other fandoms. ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ I can get extremely annoying at times with how I act and might say some stuffs that makes u uncomfortable. Please let me know if im getting too much and I'll stop ϟ\}}}}$$
 
 </details>
 
@@ -58,12 +60,17 @@ $${{\color{#FF5C00}{\textsf{The colour yellow, orange and red ϟ\}}}}$$
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Basic DNI criteriaϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you ship Billy with Freddy or any of the Marvel/Shazam family ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you hate one of my comfort fandoms/characters and kins ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{If you make sick jokes of such serious topics like the epstein files, 9/11, war and more ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Any kind of biggotry ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Anti xenogenders ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Basic DNI criteria ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ If you ship Billy with Freddy or any of the Marvel/Shazam family ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ If you hate one of my comfort fandoms/characters and kins ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ If you make sick jokes of such serious topics like the epstein files, 9/11, war and more ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Any kind of biggotry ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Anti xenogenders and neopronouns ϟ\}}}}$$
 
 </div>
 
