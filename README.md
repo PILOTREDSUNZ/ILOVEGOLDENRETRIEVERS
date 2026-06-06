@@ -27,10 +27,15 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 
 $${{\color{#FF5C00}{\textsf{ϟ Please read all of the stuffs I linked in here since I might be in ur DNI (usually those with under 15-16 and up DNIs) ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ I really love and enjoy talking about stuffs like about my day, plans, interests and more. I can be extremely social though I mostly socialize more \}}}}$$
-$${{\color{#FF5C00}{\textsf{with the people in the TF2 area and usually dont interact much with other people in my other fandoms. ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ I really love and enjoy talking about stuffs like about my day, plans, interests and more. I can be extremely social and a bit too much though I \}}}}$$
+$${{\color{#FF5C00}{\textsf{mostly socialize more with the people in the TF2 area/fandom and usually dont interact much with other people in my other fandoms. ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ I can get extremely annoying at times with how I act and might say some stuffs that makes u uncomfortable. Please let me know if im getting too much and I'll stop ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ I might say some stuffs that makes u uncomfortable. Please let me know if I do and I'll apologize immediately ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Keep in mind I use my comfort characters and fandoms as a way to cope since they help me feel better so if u dont like one \}}}}$$
+$${{\color{#FF5C00}{\textsf{one of them I might take it very personally ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ C+H is always encouraged even if its not in my name, unless I have DNIUF in my name ϟ\}}}}$$
 
 </details>
 
@@ -43,11 +48,12 @@ $${{\color{#FF5C00}{\textsf{ϟ I can get extremely annoying at times with how I 
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz hes literally my bestfriend trust me ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Team Fortress 2 ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{BLU Team and the BLU mercenaries ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{Golden Retrievers ϟ\}}}}$$
-$${{\color{#FF5C00}{\textsf{The colour yellow, orange and red ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz hes literally my bestfriend in real life trust me ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ Team Fortress 2 i love it so mucch it helped me through tough timesϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ BLU Team and the BLU mercenaries. Blu team is simply better ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ Golden Retrievers im literally one of them #pupgender #goldrevian yes hai im a doggie ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ The colour yellow, orange and red. these colours are so me heh ϟ\}}}}$$
 
 </details>
 
