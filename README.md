@@ -42,6 +42,10 @@ $${{\color{#FF5C00}{\textsf{one of them I might take it very personally ϟ\}}}}$
 
 $${{\color{#FF5C00}{\textsf{ϟ C+H is always encouraged even if its not in my name, unless I have DNIUF in my name ϟ\}}}}$$
 
+$${{\color{#FF5C00}{\textsf{ϟ IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Huge cud comf during times like this ϟ\}}}}$$
+
+$${{\color{#FF5C00}{\textsf{ϟ My spelling and grammar sucks a lot so sorry if you cant understand what im saying at times ϟ\}}}}$$
+
 $${{\color{#FF5C00}{\textsf{ϟ Expect me to actually cuddle with u if you have C+H in ur name whenever im alone ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ Dont mind my skins. I prefer keeping them plain and simple but yes, I do have more detailed skins I just dont use a lot ϟ\}}}}$$
