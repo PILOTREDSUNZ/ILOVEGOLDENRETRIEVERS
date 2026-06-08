@@ -105,7 +105,7 @@ $${{\color{#FF5C00}{\textsf{🗲 Doing DIYs and thrifting. I like making stuffs 
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{🗲 Basic DNI criterias 🗲\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 people with under 16 DNI because that applies to me 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 If you ship Billy with Freddy or any of the Marvel/Shazam family 🗲 \}}}}$$
 
