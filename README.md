@@ -27,8 +27,8 @@ $${{\color{#FF007F}{\textsf{also yo check out my drawings in my other respirator
 
 $${{\color{#FF5C00}{\textsf{ϟ I dont accept friend requests easily sorry. You might need to talk to me a lot a dozen times for me to actually accept ur friend request ϟ\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{ϟ I might unfriend you if we havent talked for more than two months straight or if we just dont get along with eachother well. Its nothing personal\}}}}$$
-$${{\color{#FF5C00}{\textsf{ since we're not exactly close sorry ϟ\}}}}$$
+$${{\color{#FF5C00}{\textsf{ϟ I might unfriend you if we havent talked for more than two months straight or if we just dont get along with eachother well. I apologize\}}}}$$
+$${{\color{#FF5C00}{\textsf{in advance. I prefer having my friendslist filled with people I actually talk with ϟ\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{ϟ You'll mostly see me at the DC and TF2 area, feel free to approach me ϟ\}}}}$$
 
