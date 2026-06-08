@@ -48,7 +48,7 @@ $${{\color{#FF5C00}{\textsf{🗲 C+H is always encouraged even if its not in my 
 
 $${{\color{#FF5C00}{\textsf{🗲 IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Huge cud comf during times like this 🗲\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 My spelling and grammar sucks a lot so sorry if you cant understand what im saying at times 🗲\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 My spelling and grammar sucks a lot especially when I get very excited so sorry if you cant understand what im saying at times 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 Expect me to actually cuddle with u if you have C+H in ur name whenever im alone 🗲 \}}}}$$
 
@@ -77,9 +77,10 @@ $${{\color{#FF5C00}{\textsf{🗲 Team Fortress 2 i love it so mucch it helps me 
 
 $${{\color{#FF5C00}{\textsf{🗲 Interacting and socializing with TF2 fans and ponies in the TF2 area. PLEASE TALK TO ME IM NICE DONT BE SCAREDD 🗲 \}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲  Making new friends and cuddling in pony town!!! 🗲 \}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 Making new friends and cuddling in pony town!!! 🗲 \}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 Matching skins with my friends!!! If ur in my friends list and I feel comfortable enough with you expect me to ask you if we can match skins 🗲 \}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 Matching skins with my friends!!! If ur in my friends list and I feel comfortable enough with you expect me to ask you if we can match\}}}}$$
+$${{\color{#FF5C00}{\textsf{skins 🗲 \}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 My friends!! I love all my cute and adorable friends awwhh ily all sm /plat<3 🗲 \}}}}$$
 
