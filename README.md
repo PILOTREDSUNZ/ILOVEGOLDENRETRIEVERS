@@ -44,9 +44,10 @@ $${{\color{#FF5C00}{\textsf{and I never want to be intentionally rude towards an
 $${{\color{#FF5C00}{\textsf{🗲 Keep in mind I use my comfort characters and fandoms as a way to cope since they help me feel better so if u dont like \}}}}$$
 $${{\color{#FF5C00}{\textsf{one of them I might take it very personally 🗲\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 C+H is always encouraged even if its not in my name, unless I have DNIUF in my name 🗲\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 C+H is always encouraged even if its not in my name, unless I have DNIUF or IWEC in my name 🗲\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Huge cud comf during times like this 🗲\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Usually will hide people freely and\}}}}$$
+$${{\color{#FF5C00}{\textsf{only let my friends cuddle with me 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 My spelling and grammar sucks a lot especially when I get very excited so sorry if you cant understand what im saying at times 🗲\}}}}$$
 
