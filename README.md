@@ -39,8 +39,8 @@ $${{\color{#FF5C00}{\textsf{🗲 I might say some stuffs that makes u uncomforta
 
 $${{\color{#FF5C00}{\textsf{🗲 I may come off as annoying, weird, persistent and rude. It is not my inention to make others view me badly. Im sorry in advance for how I socialise\}}}}$$
 $${{\color{#FF5C00}{\textsf{since I get too caught up and excited to realise how I am behaving and talking\}}}}$$
-$${{\color{#FF5C00}{\textsf{and I never want to be intentionally rude towards anyone, I just dont realise I am acting rude cuz most of the time my words are taken\}}}}$$
-$${{\color{#FF5C00}{\textsf{as a joke 🗲\}}}}$$
+$${{\color{#FF5C00}{\textsf{and I never want to be intentionally rude towards anyone, I just dont realise I am acting rude cuz most of the time my words are supposed\}}}}$$
+$${{\color{#FF5C00}{\textsf{to be taken as a joke and not seriously 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 Keep in mind I use my comfort characters and fandoms as a way to cope since they help me feel better so if u dont like \}}}}$$
 $${{\color{#FF5C00}{\textsf{one of them I might take it very personally 🗲\}}}}$$
@@ -54,9 +54,7 @@ $${{\color{#FF5C00}{\textsf{🗲 My spelling and grammar sucks a lot especially 
 
 $${{\color{#FF5C00}{\textsf{🗲 Expect me to actually cuddle with u if you have C+H in ur name whenever im alone 🗲 \}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 Dont mind my skins. I prefer keeping them plain and simple but yes, I do have more detailed skins I just dont use a lot 🗲\}}}}$$
-
-$${{\color{#FF5C00}{\textsf{🗲 Dont know much of other chars in DC, Marvel and Imagine Comics since I mostly only read the comics of my fav/comf characts like 🗲 \}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 Dont know much of other chars in DC, Marvel and Imagine Comics since I mostly only read the comics of my fav/comf characts like\}}}}$$
 $${{\color{#FF5C00}{\textsf{Superman, Captain Marvel (Billy), Captain Marvel (Carol), Captain Mar-vell, etc 🗲 \}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 okay so uhmm i didnt know the old signs i used to write these were VERY bad im so sorry i didnt know i shouldve done research\}}}}$$
@@ -73,7 +71,7 @@ $${{\color{#FF5C00}{\textsf{since i wasnt expecting it to actually mean anything
 
 <br>
 
-$${{\color{#FF5C00}{\textsf{🗲  Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz superman is literally my bestfriend in real life trust me 🗲 \}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 Superman. Yes im a big fan of him hes my comf char ilove supermn. call me jimmy irl cuz superman is literally my bestfriend in real life trust me 🗲 \}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 Team Fortress 2 i love it so mucch it helps me become vbery happy when im sad 🗲 \}}}}$$
 
