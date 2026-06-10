@@ -37,7 +37,7 @@ $${{\color{#FF5C00}{\textsf{mostly socialize more with the people in the TF2 are
 
 $${{\color{#FF5C00}{\textsf{🗲 I might say some stuffs that makes u uncomfortable. Please let me know if I do and I'll apologize immediately 🗲 \}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 I may come off as annoying, weird, persistent and rude. It is not my inention to make others view me badly. Im sorry in advance for how I socialise\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 I may come off as annoying, weird, persistent and rude. It is not my intention to make others view me badly. Im sorry in advance for how I socialise\}}}}$$
 $${{\color{#FF5C00}{\textsf{since I get too caught up and excited to realise how I am behaving and talking\}}}}$$
 $${{\color{#FF5C00}{\textsf{and I never want to be intentionally rude towards anyone, I just dont realise I am acting rude cuz most of the time my words are supposed\}}}}$$
 $${{\color{#FF5C00}{\textsf{to be taken as a joke and not seriously 🗲\}}}}$$
@@ -47,7 +47,7 @@ $${{\color{#FF5C00}{\textsf{one of them I might take it very personally 🗲\}}}
 
 $${{\color{#FF5C00}{\textsf{🗲 C+H is always encouraged even if its not in my name, unless I have DNIUF or IWEC in my name 🗲\}}}}$$
 
-$${{\color{#FF5C00}{\textsf{🗲 IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Usually will hide people freely and\}}}}$$
+$${{\color{#FF5C00}{\textsf{🗲 IWEC in my name while using a skin of one of my comf chars usually means im in a bad or sad mood idk. Usually will hide people temporarily and\}}}}$$
 $${{\color{#FF5C00}{\textsf{only let my friends cuddle and sit with me 🗲\}}}}$$
 
 $${{\color{#FF5C00}{\textsf{🗲 My spelling and grammar sucks a lot especially when I get very excited so sorry if you cant understand what im saying at times 🗲\}}}}$$
