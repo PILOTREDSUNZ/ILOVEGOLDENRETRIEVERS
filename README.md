@@ -4,7 +4,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
   <img width="120" src="https://komarev.com/ghpvc/?username=ILOVEGOLDENRETRIEVERS&label=Marvels&color=e6b400">
 <div align="center">
   
-[PronounsPage](https://en.pronouns.page/@pilotredsunz) 🗲 [Ata](https://ilovesuperman.atabook.org/)
+[PronounsPage](https://en.pronouns.page/@pilotredsunz) 🗲 [Ata](https://bluspy.atabook.org/)
 
 <br><br>
 
