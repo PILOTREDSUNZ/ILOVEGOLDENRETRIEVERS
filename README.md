@@ -37,6 +37,17 @@ ts gen a wip bro
 
 <br><br>
 
-<code></code>
+<code> 
+<table>                                  
+  <tr>
+    <th>
+     hi
+      hi
+      hi
+      hi
+    </th> 
+  </tr>                                           
+</table> 
+</code>
 
 </p>
