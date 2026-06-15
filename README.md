@@ -34,7 +34,7 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
 <table>                                  
   <tr>
     <th>
- $${{\color{#d1aa36}{\textsf{haii\}}}}$$
-    </th> 
+ ${{\color{#d1aa36}{\textsf{haii\}}}}$
+      </th> 
   </tr>                                           
 </table>
