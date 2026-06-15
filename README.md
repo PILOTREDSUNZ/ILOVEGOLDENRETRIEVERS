@@ -4,7 +4,7 @@ $${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
   <img width="190" src="https://komarev.com/ghpvc/?username=PILOTREDSUNZ&label=BUILDERS.LEAGUE.UNITED&color=4682b4">
 <div align="center">
   
-[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜𝚙𝚊𝚐𝚎](https://en.pronouns.page/@pilotredsunz) 🗲 [𝚊𝚝𝚊](https://bluspy.atabook.org/)
+[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜𝚙𝚊𝚐𝚎](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{ᯓ\}}}}$$ [𝚊𝚝𝚊](https://bluspy.atabook.org/)
 
 <br><br>
 
