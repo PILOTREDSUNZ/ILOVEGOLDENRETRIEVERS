@@ -29,21 +29,4 @@ align="right"
 width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
-<details>
 
-<summary>
-
-<img src=<img width="20" height="20" alt="0ac0ebfc" src="https://github.com/user-attachments/assets/6310fea6-8968-48f9-ac80-f0b84f8dd5fb" />
->
-
-<font color="pink">
-✦ CLICK TO OPEN ✦
-</font>
-
-</summary>
-
-<br>
-
-Hikdadjpoadoe PLEAASEEWORRK
-
-</details>
