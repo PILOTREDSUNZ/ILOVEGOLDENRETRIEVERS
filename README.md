@@ -30,11 +30,3 @@ width="500"
 src="https://github.com/user-attachments/assets/f7d4c6f5-9bb6-4a33-9066-3e7912eb427d" />
 
 ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐿𝐼𝒦𝐸 𝐼 𝒜𝑀 𝒩𝒪𝒯 𝒯𝐻𝐸 𝒪𝒩𝐿𝒴 𝒮𝒫𝒴."\}}}}$
-<table>
-  <tr>
-    <th>
-      <img src="https://github.com/user-attachments/assets/dba8a99d-3c5a-4079-9109-208f95861009" />
-      <span style="color=#ff99cc;">Pink text</span><br>
-    </th>
-  </tr>
-</table>
