@@ -1,10 +1,10 @@
-$${{\color{#FFB200}\Large{\textsf{⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆\}}}}$$
+$${{\color{#FFB200}\Large{\textsf{TS GEN A HUGE WIP DUDE. IM GONNA CHANGE AND PUT MORE THINGS HERE JST WAITT\}}}}$$
 
 <p align="center">
   <img width="190" src="https://komarev.com/ghpvc/?username=PILOTREDSUNZ&label=BUILDERS.LEAGUE.UNITED&color=4682b4">
 <div align="center">
   
-[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜𝚙𝚊𝚐𝚎](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{ᯓ\}}}}$$ [𝚊𝚝𝚊](https://bluspy.atabook.org/)
+[𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜𝚙𝚊𝚐𝚎](https://en.pronouns.page/@pilotredsunz) $${{\color{#d1aa36}{\textsf{ᯓ\}}}}$$ [𝚊𝚝𝚊](https://bluspy.atabook.org/) [gunss](https://guns.lol/bluspy)
 
 <br><br>
 
