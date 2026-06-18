@@ -48,6 +48,6 @@ ${{\color{#f7f1d1}{\textsf{and annoys everyone around them ྀིྀི\}}}}$
 
 ${{\color{#f7f1d1}{\textsf{ྀིྀི N1 BLU Team glazer and Heavy lvr <3 (not a yume) ྀིྀི \}}}}$
 
-${{\color{#f7f1d1}{\textsf{ྀིྀི the drawing besides this texts was drawn by me :D ྀིྀི \}}}}$
+${{\color{#f7f1d1}{\textsf{ྀིྀི the drawing besides these texts was drawn by me :D ྀིྀི \}}}}$
 
 <br><br>
