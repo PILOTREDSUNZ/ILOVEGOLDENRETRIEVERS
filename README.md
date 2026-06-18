@@ -40,6 +40,8 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
   </tr>
 </table>
 
-<p align="left">
+<div align="left">
+  
 ${{\color{#f7f1d1}{\textsf{ྀིྀི BLU Spy IRL. Heavy lvr <3 \}}}}$
 
+<br><br>
