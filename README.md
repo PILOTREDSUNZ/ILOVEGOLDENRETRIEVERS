@@ -44,10 +44,14 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
   
 ${{\color{#f7f1d1}{\textsf{ྀིྀི That BLU Spy in the Valve area who is too overconfident\}}}}$
 
-${{\color{#f7f1d1}{\textsf{and annoys everyone around them ྀིྀི\}}}}$
+${{\color{#f7f1d1}{\textsf{and annoys everyone around them. Yes, I glaze\}}}}$
 
-${{\color{#f7f1d1}{\textsf{ྀིྀི N1 BLU Team glazer and Heavy lvr <3 (not a yume) ྀིྀི \}}}}$
+${{\color{#f7f1d1}{\textsf{myself way tooo much, I talk too much, I love \}}}}$
 
-${{\color{#f7f1d1}{\textsf{ྀིྀི the drawing besides these texts was drawn by me :D ྀིྀི \}}}}$
+${{\color{#f7f1d1}{\textsf{being praised and I love showing my capabilities for\}}}}$
+
+${{\color{#f7f1d1}{\textsf{sake of being seen as cool and epic ྀིྀི \}}}}$
+
+${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn by me ྀིྀི \}}}}$
 
 <br><br>
