@@ -50,7 +50,7 @@ ${{\color{#f7f1d1}{\textsf{myself way tooo much, I talk too much, I love \}}}}$
 
 ${{\color{#f7f1d1}{\textsf{being praised and I love showing my capabilities for\}}}}$
 
-${{\color{#f7f1d1}{\textsf{sake of being seen as cool and epic ྀིྀི \}}}}$
+${{\color{#f7f1d1}{\textsf{the sake of being seen as cool and epic ྀིྀི \}}}}$
 
 ${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn by me ྀིྀི \}}}}$
 
