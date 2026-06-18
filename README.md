@@ -55,3 +55,5 @@ ${{\color{#f7f1d1}{\textsf{the sake of being seen as cool and epic ྀིྀི 
 ${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn by me ྀིྀི \}}}}$
 
 <br><br>
+
+
