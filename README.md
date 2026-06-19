@@ -67,7 +67,7 @@ ${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn b
 
   <br>
 
-  ${{\color{#f7f1d1}{\textsf{Im soooooooo cool \}}}}$
+  ${{\color{#f7f1d1}{\textsf{ts a wip too cuz im soo lazy but yeah, im jst gen soo cool and awesome and epic cuz im me\}}}}$
 
 </details>
 
