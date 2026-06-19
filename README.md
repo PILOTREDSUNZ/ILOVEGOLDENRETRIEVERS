@@ -67,7 +67,7 @@ ${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn b
 
   <br>
 
-  ${{\color{#f7f1d1}{\textsf{hmrfs \}}}}$
+  ${{\color{#f7f1d1}{\textsf{Im soooooooo cool \}}}}$
 
 </details>
 
