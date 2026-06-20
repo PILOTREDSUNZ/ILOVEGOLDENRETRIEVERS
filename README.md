@@ -121,7 +121,7 @@ ${{\color{#4682b4}{\textsf{when discussing this topic ✧\}}}}$
 
 ${{\color{#4682b4}{\textsf{✧ Systems. Not against systems!!! Just extremely uneducated and confused about systems and can get very anxious and worried\}}}}$
 ${{\color{#4682b4}{\textsf{and even overthink too much when interacting with systems since I might accidentally ssay or do something that can offend or\}}}}$
-${{\color{#4682b4}{\textsf{hurt yall ✧\}}}}$
+${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone explains it more to me and educate me ✧\}}}}$
 
 </details>
 
