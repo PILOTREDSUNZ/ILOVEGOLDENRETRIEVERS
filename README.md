@@ -43,17 +43,9 @@ ${{\color{#f7f1d1}{\textsf{"𝐼𝒯 𝒮𝐸𝐸𝑀𝒮 𝐼 𝒜𝑀 𝒩𝒪
 
 <div align="left">
   
-${{\color{#f7f1d1}{\textsf{ྀིྀི That BLU Spy in the Valve area who is too overconfident\}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ Literally BLU Spy IRL ⟡⋆\}}}}$
 
-${{\color{#f7f1d1}{\textsf{and annoys everyone around them. Yes, I glaze\}}}}$
-
-${{\color{#f7f1d1}{\textsf{myself way tooo much, I talk too much, I love \}}}}$
-
-${{\color{#f7f1d1}{\textsf{being praised and I love showing my capabilities for\}}}}$
-
-${{\color{#f7f1d1}{\textsf{the sake of being seen as cool and epic ྀིྀི \}}}}$
-
-${{\color{#f7f1d1}{\textsf{ྀིྀི Drawing besides these texts were drawn by me ྀིྀི \}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ Your experience with me will sometimes be the greatest ⟡⋆\}}}}$
 
 <br><br>
 
