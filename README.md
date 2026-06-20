@@ -69,9 +69,9 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   
 <details>
   <summary>
-<img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/d3333433-2125-4b80-8681-5ee503d4ed6a" />
+<img width="20" height="20" alt="byii" src="https://github.com/user-attachments/assets/443559b2-7058-4913-99c2-cc0ce36a9867" />
     BYI
-<img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/7fce4ebc-cbcc-441e-8729-b12b85e914d2" />
+<img width="20" height="20" alt="byii" src="https://github.com/user-attachments/assets/b24f6195-c107-415c-8023-f932623d8fa0" />
     </span>
   </summary>
 
@@ -108,9 +108,9 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   
 <details>
   <summary>
-<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/789f5697-921f-4e0a-a47f-5bed79d9f634" />
+<img width="20" height="20" alt="IWECC" src="https://github.com/user-attachments/assets/b7f76418-d5a1-479d-9d49-55c0074cb13d" />
    IWEC
-<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/79672e7f-a95e-44b8-8399-4f984bae5cf9" />
+<img width="20" height="20" alt="IWECC" src="https://github.com/user-attachments/assets/33bd6013-4f38-44ec-bc0d-5295a77e6342" />
    </span>
   </summary>
 
@@ -131,8 +131,10 @@ ${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone exp
   
 <details>
   <summary>
-DNI
-    </span>
+<img width="20" height="20" alt="ACTUALLYDNIII" src="https://github.com/user-attachments/assets/7295b38f-e99c-4f89-b925-a6d30abf501d" />
+    DNI
+<img width="20" height="20" alt="ACTUALLYDNIII" src="https://github.com/user-attachments/assets/f5e2f8df-e875-482d-9bcf-2b1268a4495f" />
+  </span>
   </summary>
 
   <br>
