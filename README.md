@@ -49,7 +49,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Your experience with me will sometimes\}}}}$
 
 ${{\color{#d1aa36}{\textsf{not be the greatest ⟡⋆\}}}}$
 
-${{\color{#d1aa36}{\textsf{⊹₊ I can get extremenly annoying by how cocky,\}}}}$
+${{\color{#d1aa36}{\textsf{⊹₊ I can get extremenly frustrating by how cocky,\}}}}$
 
 ${{\color{#d1aa36}{\textsf{overconfident and brash I could get during\}}}}$
 
