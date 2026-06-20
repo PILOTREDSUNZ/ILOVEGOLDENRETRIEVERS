@@ -70,7 +70,7 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 <details>
   <summary>
 <img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/d3333433-2125-4b80-8681-5ee503d4ed6a" />
-    BYI!!!!!
+    BYI
 <img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/7fce4ebc-cbcc-441e-8729-b12b85e914d2" />
     </span>
   </summary>
@@ -85,11 +85,60 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
 
   ${{\color{#4682b4}{\textsf{✧ Might say some rude and weird things that can make u uncomfy. Please lmk if I do and ill apologise ✧\}}}}$
 
-  ${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ I really do love and enjoy talking and yapping a lot ✧\}}}}$
 
+  ${{\color{#4682b4}{\textsf{✧ My grammar and spelling sucks a lot especially when I get excited talking and I cant really realise my mistakes easily\}}}}$
+  ${{\color{#4682b4}{\textsfso I never really bothered to correct them most of the time. Sorry if you also dont understand me because of this ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ Expect me to actually sit with u if u have C+H in ur name whenever im sitting alone ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ My friend requests are turned off. You might need to talk to me for days for me to finally add you. I will unfriend you\}}}}$
+  ${{\color{#4682b4}{\textsf{though if we are not that close and havent talk to eachother in months ✧\}}}}$
+
+  ${{color{#4682b4}{\textsf{✧ Im extremely affectionate towards my friends and often call them by nicknames and say ILY and worry too much, so be aware\}}}}$
+  ${{\color{#4682b4}{\textsf{of this if u intend to be my friend ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ IM ACTUALLY VERYYY KIND AND NICE PLEASEPLS INT W ME IM NOT THAT NATURALLY MEAN AND RUDE PLSS ✧\}}}}$
 
 </details>
 
 </details>
 
+<div align="center">
+  
+<details>
+  <summary>
+<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/789f5697-921f-4e0a-a47f-5bed79d9f634" />
+   IWEC
+<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/79672e7f-a95e-44b8-8399-4f984bae5cf9" />
+   </span>
+  </summary>
 
+  <br>
+
+${{\color{#4682b4}{\textsf{✧ Shippers. IDM ships as long as they arent weird. Im just not the type to ship much and can get extremely awkward\}}}}$
+${{\color{#4682b4}{\textsf{when discussing this topic ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Systems. Not against systems!!! Just extremely uneducated and confused about systems and can get very anxious and worried\}}}}$
+${{\color{#4682b4}{\textsf{and even overthink too much when interacting with systems since I might accidentally ssay or do something that can offend or\}}}}$
+${{\color{#4682b4}{\textsf{hurt yall ✧\}}}}$
+
+</details>
+
+</details>
+
+<div align="center">
+  
+<details>
+  <summary>
+DNI
+    </span>
+  </summary>
+
+  <br>
+
+${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+
+</details>
+
+</details>
