@@ -55,6 +55,10 @@ ${{\color{#d1aa36}{\textsf{overconfident and brash I could get during\}}}}$
 
 ${{\color{#d1aa36}{\textsf{interactions ⟡⋆\}}}}$
 
+${{\color{#d1aa36}{\textsf{⊹₊ Be warned, I can have sudden mood swings and might say\}}}}$
+
+${{\color{#d1aa36}{\textsf{some rude things towards you. I apolagize in advance for this ⟡⋆\}}}}$
+
 <br><br>
 
 <div align="center">
