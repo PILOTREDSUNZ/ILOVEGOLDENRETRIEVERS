@@ -71,12 +71,22 @@ ${{\color{#d1aa36}{\textsf{⊹₊ Huge Heavy luver <33 ⟡⋆\}}}}$
   <summary>
 <img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/d3333433-2125-4b80-8681-5ee503d4ed6a" />
     BYI!!!!!
+<img width="20" height="20" alt="byi" src="https://github.com/user-attachments/assets/7fce4ebc-cbcc-441e-8729-b12b85e914d2" />
     </span>
   </summary>
 
   <br>
 
-  ${{\color{#f7f1d1}{\textsf{ts a wip too cuz im soo lazy but yeah, im jst gen soo cool and awesome and epic cuz im me\}}}}$
+  ${{\color{#4682b4}{\textsf{✧ Big BLU team enhusiast here. I gen would get excited if I see more BLU mercenary skins ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ I tend to hide people temporarily if they managed to bother and annoy me ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ I barely use any tone tags so be cautious when interacting if you need them ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ Might say some rude and weird things that can make u uncomfy. Please lmk if I do and ill apologise ✧\}}}}$
+
+  ${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+
 
 </details>
 
