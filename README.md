@@ -139,8 +139,9 @@ ${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone exp
 
   <br>
 
-${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+${{\color{#4682b4}{\textsf{✧ if youre a very veryyyy bad personn. Dont want any connections with anyy bad people ✧\}}}}$
 
+${{\color{#4682b4}{\textsf{✧ if you dont like how I talk or act. Makes me sad cuz im lit jst expressing myself in a game to make more friends ✧\}}}}$
 </details>
 
 </details>
