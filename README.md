@@ -123,6 +123,8 @@ ${{\color{#4682b4}{\textsf{✧ Systems. Not against systems!!! Just extremely un
 ${{\color{#4682b4}{\textsf{and even overthink too much when interacting with systems since I might accidentally ssay or do something that can offend or\}}}}$
 ${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone explains it more to me and educate me ✧\}}}}$
 
+${{\color{#4682b4}{\textsf{✧ GnB fandom. Terrible experience with yall ✧\}}}}$
+
 </details>
 
 </details>
@@ -139,9 +141,42 @@ ${{\color{#4682b4}{\textsf{hurt yall. But I heavily appreciate it if someone exp
 
   <br>
 
-${{\color{#4682b4}{\textsf{✧ if youre a very veryyyy bad personn. Dont want any connections with anyy bad people ✧\}}}}$
+${{\color{#4682b4}{\textsf{✧ if youre a very veryyyy bad personn or is friends and connected with one cuz I dont want any connection\}}}}$
+${{\color{#4682b4}{\textsf{with any bad people ✧\}}}}$
 
 ${{\color{#4682b4}{\textsf{✧ if you dont like how I talk or act. Makes me sad cuz im lit jst expressing myself in a game to make more friends ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ If u make any disgusting jokes towards serious topics such as the Epstein files, war, racism, discrimination, disabilities,\}}}}$
+${{\color{#4682b4}{\textsf{9/11, Hitler, etc✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Anti Xenogender and Neopronouns ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ Shelly and her associates ✧\}}}}$
+
+${{\color{#4682b4}{\textsf{✧ If you sit besides me and roleplay with me for the sake of your ship "WITHOUT" asking first. I WILL either hide u\}}}}$
+${{\color{#4682b4}{\textsf{temporarily or move away. Im already awkward with discussing the topic of ships, so this gen makes me uncomfy,\}}}}$
+${{\color{#4682b4}{\textsf{especially if we arent friends ✧\}}}}$
+
 </details>
 
 </details>
+
+<div align="center">
+  
+<details>
+  <summary>
+<img width="20" height="20" alt="ILOVEE" src="https://github.com/user-attachments/assets/c0e966a6-4e99-41ae-96f7-cf7f5e6cc763" />
+    I realllyy loveee
+    </span>
+  </summary>
+
+  <br>
+
+  ${{\color{#4682b4}{\textsf{✧ ✧\}}}}$
+  
+</details>
+
+</details>
+
+
+
