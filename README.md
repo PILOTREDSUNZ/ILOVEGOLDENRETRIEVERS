@@ -215,7 +215,7 @@ ${{\color{#4682b4}{\textsf{✧ Away- AFK and no response. Can disconnect sometim
 
 ${{\color{#4682b4}{\textsf{✧ Looking for chat- bored and usually waiting for friends and looking for someone to talk and sit with. Free to int w this!! ✧\}}}}$
 
-${{\color{#4682b4}{\textsf{✧ Looking for roleplay- feeling silly and is willing to roleplay with anyone!!! (rarely used) ✧\}}}}$
+${{\color{#4682b4}{\textsf{✧ Looking for roleplay- feeling silly and is willing to roleplay with anyone or roleplaying w someone else already!!! (rarely used) ✧\}}}}$
 
 </details>
 
