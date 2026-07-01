@@ -17,7 +17,8 @@ $${{\color{#4682b4}\Large{\textsf{⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊
 <img width="60" height="35" alt="Pupgender" src="https://github.com/user-attachments/assets/738324f6-39a7-4705-9999-3ba432a12389" />
 
 <p align="center">
-<img width="736" height="230" alt="I&#39;M A SPY TF -Will" src="https://github.com/user-attachments/assets/7ee21ead-03ab-411b-afd3-7a553190a144" />
+<img width="736" height="414" alt="What is bro yapping about" src="https://github.com/user-attachments/assets/d3ed2c30-bd94-4bb1-997e-a983dd59d6af" />
+
 
 <div align="center">
 
